@@ -1,4 +1,4 @@
-# 
+# Get the ultimate opensea sniper bot with opensea sniper bot updated Bot - gas-optimization and whitelist-bypass. Featuring gas-optimization and whitelist-bypass, it's the best
 
 
 
